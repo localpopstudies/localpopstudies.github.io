@@ -1,0 +1,1 @@
+The Local Population Studies Society (LPSS) ceased operations in 2026 following its final conference. The Society had promoted local history, social history and historical demography since 1972. This is an archive page.
